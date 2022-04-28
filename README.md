@@ -57,47 +57,6 @@
 [![Deploy](https://www.herokucdn.com/deploy/button.svg)](https://heroku.com/deploy?template=https://github.com/Ben-Monster/NAUGHTY-HATZU)
 
 ---------------------------------
-#### 🔞: .nslist
-
-#### 🔞 : .nsmedia
-
-#### 🔞NSFW
-
-*◁○Neutro 🔞Panel ○▷*
-
-*●🔞NEUTRO-X NSFU PANEL●*
-
-_Limite Download ...🙂WhatsApp Download _
-
-*🚫* : .xnx 
-*🔞* : XNXX .
-*📵:* .xnx https://www.xnxx.com/video-x0ly546/beautiful_girl
-
-*🚫* : .nxlist
-*📵*: XNXX .
-
-*🚫* : .feetggif
-*🔞 : NSFU feetg Anime GIF. (sticker )
-
-*🚫විධානය* : .spankgif
-*🔞විස්තරය* :NSFU spnk Anime GIF. (sticker 
-
-: .pussygif
-* :NSFU pussy Anime GIF . (sticker 
-
-:  .kunigif
- : NSFU kuni Anime GIF (sticker 
-
-* : .analgif
-: NSFU kuni Anime GIF . (sticker 
-
- XXX STORIES🙇*
-
-
-Pdf
-
-
-f
 
 
 
@@ -112,8 +71,49 @@ f
 
 
 
-pdf
 
-*⛔ Random Sinhala NSFU MP4🙇*
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
 
 
